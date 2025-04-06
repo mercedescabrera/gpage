@@ -1,1 +1,1 @@
-###Mercedes cabrera  (nombre grado y grupo)
+Mercedes cabrera  (nombre grado y grupo)
